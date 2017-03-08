@@ -1,5 +1,6 @@
-# Youtube-refernce-list
-Hi reader! This is Sage's (subsage.github.io) Curated list of youtube channels that I like to show to people interested in learning more about game development/design. You might end up not liking every single channel on here, but you should perhaps make a good effort to try and view each channel. Each channel here has a unique view/perspective on vide games from development to design that can be very helpful to all trying to make their own game. I'll try to update this list time to time as well as order it in some fashion, right now it's rather unordered. If you'd like to add to the list, please just contact me and let me know of a channel that you think could do well to this list. Please enjoy!
+# Youtube-reference-list
+
+Hi reader! This is Sage's (subsage.github.io) curated list of youtube channels that I like to show to people interested in learning more about game development/design. You might end up not liking every single channel on here, but you should perhaps make a good effort to try and view each channel. Each channel here has a unique view/perspective on vide games from development to design that can be very helpful to all trying to make their own game. I'll try to update this list time to time as well as order it in some fashion, right now it's rather unordered. If you'd like to add to the list, please just contact me and let me know of a channel that you think could do well to this list. Please enjoy!
 
 Folding Ideas: https://www.youtube.com/channel/UCyNtlmLB73-7gtlBz00XOQQ
 Mostly focuses on design aspects of film, but I find that a good amount of what he speaks has some use in game design. He does play video games as well and can time to time help directly with game design.
