@@ -24,3 +24,6 @@ Hi reader! This is Sage's (https://subsage.github.io/) curated list of youtube c
 |[**Rock Lee Smile**] (https://www.youtube.com/channel/UCgy-XzXwcdJKNKIUyzQmw7Q) | Reviews games, has reviewed a large array of indie games. Good source for seeing other games in the field.|
 |[**Writing on Games**] (https://www.youtube.com/channel/UCPlWv88ZRMxCcK3BGjrX7ew)) | A channel that does in depth analysis of video games for mechanics he finds interesting. Provides good insight on several topics.|
 |[**Satchbag**] (https://www.youtube.com/channel/UCShqXc61KTV5NgGKDq7Fz6g) | Case studies and video essays on the artistic merit and social impact of videogames and their themes.|
+|[**No Clip**] (https://www.youtube.com/channel/UC0fDG3byEcMtbOqPMymDNbw) | Some documentaries on games that provide interesting insight.|
+|[**Wituz**] (https://www.youtube.com/channel/UCXBPhjAqVt05H8Ph04u4jLg) | A cool dude who's providing a youtube series on how to program games for the play station 1, yes, you read that correctly, the PS1.|
+|[**Joseph Anderson**] (https://www.youtube.com/channel/UCyhnYIvIKK_--PiJXCMKxQQ) | Provides longform analysis and reviews that focus on gameplay from birdseye view.|
