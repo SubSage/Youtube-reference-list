@@ -31,4 +31,7 @@ Hi reader! This is Sage's (https://subsage.github.io/) curated list of youtube c
 Also, because...I want to praise myself some more, here are comments given on the list. Feel free to praise me to be added.
 
 "Wow, thats extensive. Thank you." -/u/iamsed
+
 "This list is awesome! Thanks for sharing." -/u/flossington
+
+"@Sage thanks for the github list you posted earlier, I'm a game dev student and I found a lot of channels on the list to be really interesting" -charlie
