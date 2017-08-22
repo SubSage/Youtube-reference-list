@@ -38,17 +38,29 @@ Also, because...I want to praise myself some more, here are comments given on th
 
 
 The channels below are currently on review, I've been suggested to add them here, but I have yet to see if they're channels that are overall helpful. As I give the thumbs up, I'll move them up with the table.
+
 https://www.youtube.com/user/Matthewmatosis
+
 https://www.youtube.com/user/SunderGamer
+
 https://www.youtube.com/user/ClassicGameJunkie
+
 https://www.youtube.com/user/KuribosMask
+
 https://www.youtube.com/user/mrskimps/videos
+
 https://www.youtube.com/user/strafefox/videos
+
 https://www.youtube.com/channel/UCCOD-tcFzMSiaNkSUB_KVjQ
+
 https://www.youtube.com/user/SupHolmesShow/
+
 https://www.youtube.com/user/TheHappieCat/
+
 https://www.youtube.com/channel/UCT7njg__VOy3n-SvXemDHvg
+
 https://www.youtube.com/channel/UCHVNsaUszPcZhlJdXnhkYZAs
+
 https://www.youtube.com/channel/UCylVqS5Hk_i175AyCeYKT2w
 
 https://www.youtube.com/user/ThinMatrix
