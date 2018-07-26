@@ -36,6 +36,10 @@ Also, because...I want to praise myself some more, here are comments given on th
 
 "@Sage thanks for the github list you posted earlier, I'm a game dev student and I found a lot of channels on the list to be really interesting" -charlie
 
+"Cheers for the list man" -10 VHS
+
+"i cant stand half of these" - keeps⚫
+
 
 The channels below are currently on review, I've been suggested to add them here, but I have yet to see if they're channels that are overall helpful. As I give the thumbs up, I'll move them up with the table.
 
