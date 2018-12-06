@@ -68,3 +68,9 @@ https://www.youtube.com/channel/UCHVNsaUszPcZhlJdXnhkYZAs
 https://www.youtube.com/channel/UCylVqS5Hk_i175AyCeYKT2w
 
 https://www.youtube.com/user/ThinMatrix
+
+https://www.youtube.com/user/tthompso
+
+https://www.youtube.com/channel/UC8P_raHQ4EoWTSH2GMESMQA
+
+https://www.youtube.com/channel/UCIoNgwHpavUi2UnC68cKgbw
