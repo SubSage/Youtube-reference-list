@@ -74,3 +74,9 @@ https://www.youtube.com/user/tthompso
 https://www.youtube.com/channel/UC8P_raHQ4EoWTSH2GMESMQA
 
 https://www.youtube.com/channel/UCIoNgwHpavUi2UnC68cKgbw
+
+https://www.youtube.com/channel/UCfVFSjHQ57zyxajhhRc7i0g
+
+https://www.youtube.com/channel/UCmtyQOKKmrMVaKuRXz02jbQ
+
+https://www.youtube.com/channel/UCEklP9iLcpExB8vp_fWQseg
