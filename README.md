@@ -38,9 +38,6 @@ Also, because...I want to praise myself some more, here are comments given on th
 
 "Cheers for the list man" -10 VHS
 
-"i cant stand half of these" - keeps⚫
-
-
 The channels below are currently on review, I've been suggested to add them here, but I have yet to see if they're channels that are overall helpful. As I give the thumbs up, I'll move them up with the table.
 
 https://www.youtube.com/user/Matthewmatosis
@@ -80,3 +77,8 @@ https://www.youtube.com/channel/UCfVFSjHQ57zyxajhhRc7i0g
 https://www.youtube.com/channel/UCmtyQOKKmrMVaKuRXz02jbQ
 
 https://www.youtube.com/channel/UCEklP9iLcpExB8vp_fWQseg
+
+https://www.youtube.com/channel/UCF6F8LdCSWlRwQm_hfA2bcQ
+
+https://www.youtube.com/channel/UCbaxUExGKrH2zxY4AkY9wCg
+
